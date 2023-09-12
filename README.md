@@ -8,4 +8,4 @@ eu sou a isabely
   
   isabely.sa@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/jungkook-confused-jungkook-disgusted-kthloveclub-jungkook-jungkook-gif-23112084)
+![.](https://tenor.com/pt-BR/view/jungkook-confused-jungkook-disgusted-kthloveclub-jungkook-jungkook-gif-23112084)
